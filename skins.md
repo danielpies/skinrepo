@@ -1,5 +1,5 @@
 
-# moje skiny ;3c
+# skiny do granka dobre co gram na nich
 
 
 # [;3 v3.1 varv](https://drive.google.com/file/d/1K7omAMcn2APJw_WceY3yFrsVhceAtpUX/view?usp=sharing)
