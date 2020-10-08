@@ -2,6 +2,9 @@
 # dobre skiny
 
 
+# [tony varv edit](https://drive.google.com/file/d/1EhGvN2qHSjgUGfHKqOM5mOLHddfZTAWv/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15647845/dbe0)
+
 # [;3 v3.1 varv](https://drive.google.com/file/d/1K7omAMcn2APJw_WceY3yFrsVhceAtpUX/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15545627/452d)
 
