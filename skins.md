@@ -17,12 +17,6 @@
 # [freddie+fami+aireuvv](https://drive.google.com/file/d/1GN2j_rlv5UxevVQgv5lybVeGTFYyGQvu/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15545654/eac1)
 
-# [Axarious edit](https://drive.google.com/file/d/1Fn7W9ubtGQVDtSv8QYgUIha3X9tMb5P3/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15545646/1a71)
-
-# [-azr8 pink edit](https://drive.google.com/file/d/1MR2kzGiq0XsHQyP0mR4mv38lItOuyJYa/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15545614/fd14)
-
 # [morgn blue](https://drive.google.com/file/d/1Z-b28enToE8EhEwXNgDX24lWQACX9SuV/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15545606/f0d3)
 
