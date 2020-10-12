@@ -1,6 +1,8 @@
 
 # dobre skiny
 
+# [red white 0.0001](https://drive.google.com/file/d/1X-HJA_SjFXIVZYmx-olr0OOiG0MNuSD7/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15666220/4fc6)
 
 # [tony varv edit](https://drive.google.com/file/d/1EhGvN2qHSjgUGfHKqOM5mOLHddfZTAWv/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15647845/dbe0)
