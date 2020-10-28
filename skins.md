@@ -1,11 +1,11 @@
 
 # dobre skiny
 
+# [yugen edit](https://drive.google.com/file/d/1VgUjWOwSV3QExTXN4KJI1CD7VnGylgHr/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15735508/e7ed)
+
 # [red white 0.0001](https://drive.google.com/file/d/1X-HJA_SjFXIVZYmx-olr0OOiG0MNuSD7/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15666220/4fc6)
-
-# [tony varv edit](https://drive.google.com/file/d/1EhGvN2qHSjgUGfHKqOM5mOLHddfZTAWv/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15647845/dbe0)
 
 # [;3 v3.1 varv](https://drive.google.com/file/d/1K7omAMcn2APJw_WceY3yFrsVhceAtpUX/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15545627/452d)
@@ -21,10 +21,3 @@
 
 # [freddie+fami+aireuvv](https://drive.google.com/file/d/1GN2j_rlv5UxevVQgv5lybVeGTFYyGQvu/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15545654/eac1)
-
-# [morgn blue](https://drive.google.com/file/d/1Z-b28enToE8EhEwXNgDX24lWQACX9SuV/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15545606/f0d3)
-
-# [LanJay Fcuk](https://drive.google.com/file/d/1RZJGF9b5g5Ct2YzgZdV1eFTc4hYPGbFj/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15545585/ae07)
-
