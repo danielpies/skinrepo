@@ -1,6 +1,12 @@
 
 # dobre skiny
 
+# [emilia turbo ryuk edit 2](https://drive.google.com/file/d/1CQXid_Zhk59nPhJvPPPblbKIffzEYB50/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15735556/b054)
+
+# [emilia turbo ryuk edit 1](https://drive.google.com/file/d/1Rs4IbGR3TAZ8Xwnb5fw7VcJxrOV0qijv/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15735534/9037)
+
 # [yugen edit](https://drive.google.com/file/d/1VgUjWOwSV3QExTXN4KJI1CD7VnGylgHr/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15735508/e7ed)
 
