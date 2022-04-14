@@ -1,5 +1,5 @@
 
-# dobre skiny
+# 
 
 # [emilia turbo ryuk edit 2](https://drive.google.com/file/d/1CQXid_Zhk59nPhJvPPPblbKIffzEYB50/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15735556/b054)
