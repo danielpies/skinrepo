@@ -4,6 +4,8 @@
 # []()
 ![]()
 
+# [mikuroll edit](https://drive.google.com/file/d/1OWuL0lbXDblKHRvTARDsZD9rjXL0tSKY/view?usp=sharing)
+![](https://i.imgur.com/tAqEcqy.jpg)
 # [MoeYandere vaxei edit](https://drive.google.com/file/d/1Ry32nZHlJBvZRA8Jj4n-uXzf3SvyU7Z7/view?usp=sharing)
 ![](https://i.imgur.com/WjhhBWV.jpg)
 # [imfancylad edit](https://drive.google.com/file/d/1rh4OKTqoKQejZqwfe04qxnR6Ga57SMro/view?usp=sharing)
