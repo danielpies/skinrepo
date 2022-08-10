@@ -4,6 +4,8 @@
 # []()
 ![]()
 
+# [nara edir 2 sdsakl](https://drive.google.com/file/d/1xaxBtYYKPvr97E7n88zwUoV5EdXncVtD/view?usp=sharing)
+![](https://i.imgur.com/HfEJT1x.jpg)
 # [mikuroll edit](https://drive.google.com/file/d/1OWuL0lbXDblKHRvTARDsZD9rjXL0tSKY/view?usp=sharing)
 ![](https://i.imgur.com/tAqEcqy.jpg)
 # [MoeYandere vaxei edit](https://drive.google.com/file/d/1Ry32nZHlJBvZRA8Jj4n-uXzf3SvyU7Z7/view?usp=sharing)
