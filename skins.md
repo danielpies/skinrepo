@@ -50,8 +50,6 @@
 ![](https://i.imgur.com/brk4bgH.jpg)
 # [- 《CK》 WhiteCat 2.1 ~ new -lite](https://drive.google.com/file/d/1nh34G0JjKW9RFB5RjgpezG266ORQzfVb/view?usp=sharing)
 ![](https://i.imgur.com/soLqbym.jpg)
-# [Kantoku Skin by RuRu (SnowWhite)(monochrome edit)](https://drive.google.com/file/d/1nh34G0JjKW9RFB5RjgpezG266ORQzfVb/view?usp=sharing)
-![](https://i.imgur.com/W8Si17f.jpg)
 # [Nara edit](https://drive.google.com/file/d/1vdHUg6un2LiygLXLI4_EqVZt11v-NwJe/view?usp=sharing)
 ![](https://i.imgur.com/HaTwUvp.jpg)
 # [-Megumin2K -(woey) edit](https://drive.google.com/file/d/1-yCnN8uuMuMNg_-gBThFqIkdjHzFZUaR/view?usp=sharing)
